@@ -7,4 +7,3 @@ Apaixonado por tecnologia, estou atualmente cursando Análise e Desenvolvimento 
 - 💬 Contate-me no email: daniloadm.ti@gmail.com
 - 😄 Pronouns: ele/dele;
   
--->
